@@ -1,1 +1,1 @@
-# buat-semangtin-ken
+# buat-semangatin-ken
